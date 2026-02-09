@@ -8,3 +8,4 @@ Is there a roadmap available for upcoming features? reply me
 hi every one, today i shear some public comment
 im a old user on github page but i start using github some days ago
 i bulding the base event and try to working on base
+i need base for earn roll, and i try to mange 
