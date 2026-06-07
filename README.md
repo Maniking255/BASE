@@ -12,3 +12,4 @@ i need base for earn roll, and i try to mange
 hi dear all lovely fammm, happy Sunday Base 
 i recommend you, just deploy a contract on the Base 
 increase your Transections on the base network and get a chance to eligible for Role 
+maybe base in November...! what you think 🤔.?
